@@ -2,7 +2,7 @@ Hi 👋 My name is Bruno Guzmán
 
 =============================
 
-Web developer
+Web developer, and future IT engineer 
 
 -------------
 
